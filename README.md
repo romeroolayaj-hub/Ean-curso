@@ -6,3 +6,6 @@ Conclusiones del análisis: La IA permitió identificar rápidamente una correla
 
 Video de youtube:
 https://youtu.be/T2BLcs8Kw1U
+
+https://universidadeaneduco-my.sharepoint.com/personal/jromero84148_universidadean_edu_co/Documents/Proyecto%20excel.xlsx?web=1
+excel
